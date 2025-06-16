@@ -1,0 +1,6 @@
+![Uploading projeto-3.png…]()
+![Uploading projeto-3.png…]()
+![avatar-perfil](https://github.com/user-attachments/assets/d76e52f0-741c-4cf0-b810-4b1b9a581354)
+![avatar-perfil](https://github.com/user-attachments/assets/d76e52f0-741c-4cf0-b810-4b1b9a581354)
+![projeto-1](https://github.com/user-attachments/assets/0793edd1-31cb-4047-8243-55fd198f34a1)
+![projeto-1](https://github.com/user-attachments/assets/0793edd1-31cb-4047-8243-55fd198f34a1)
